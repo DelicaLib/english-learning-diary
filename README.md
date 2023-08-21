@@ -1,1 +1,1 @@
-# english-learning-diary
+# English Learning Diary
